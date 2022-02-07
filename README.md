@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @VENYA
+- 👀 I’m interested in programming
+- 🌱 I’m currently learning programming
+- 💞️ I’m looking to collaborate on courses
+- 📫 How to reach me snox407@gmail.com
